@@ -2,11 +2,6 @@
 - 👀 I’m interested in ... Learning code & avatar design
 - 🌱 I’m currently learning ...Blender
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-
-<!---
-Kitsune-Miku/Kitsune-Miku is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 📫 How to reach me ...352-221-2029
+- 😄 Pronouns: ...She/Her
+- ⚡ Make the memories dance 
